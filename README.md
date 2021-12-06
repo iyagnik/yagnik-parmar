@@ -3,7 +3,6 @@
 🔹Hola, Grettings Guys ! <br>
 🔹Its RedX aka Yagnik, a IT Student(2nd Year). <br>
 🔹Editor<br>
-🔹Live in Present 📴 <br>
 🔹Youtube ⬇️<br>
    (https://redx43.page.link/YT) <br>
 🔹Instagram ⬇️<br>
