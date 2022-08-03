@@ -1,7 +1,7 @@
 <h1> 𓊈𒆜𝓡𝓪𝓭𝓱𝓮 𝓡𝓪𝓭𝓱𝓮𒆜𓊉 </h1> 
 <br>
 🔹Hola, Grettings Guys ! <br>
-🔹Its RedX aka Yagnik, a IT Student(2nd Year). <br>
+🔹My Self Yagnik, a IT Student(3rd Year). <br>
 🔹Editor<br>
 🔹Youtube ⬇️<br>
    (https://redx43.page.link/YT) <br>
