@@ -1,12 +1,12 @@
-<h1> 𓊈𒆜𝓡𝓪𝓭𝓱𝓮 𝓡𝓪𝓭𝓱𝓮𒆜𓊉 </h1> 
+<h1> 𒆜𝓡𝓪𝓭𝓱𝓮 𝓡𝓪𝓭𝓱𝓮𒆜 </h1> 
 <br>
 🔹Hola, Grettings Guys ! <br>
-🔹My Self Yagnik, a IT Student(3rd Year). <br>
-🔹Editor<br>
+🔹My Self Yagnik, a IT Student(Final Year). <br>
+<!-- 🔹Editor<br>
 🔹Youtube ⬇️<br>
    (https://redx43.page.link/YT) <br>
 🔹Instagram ⬇️<br>
-   (https://www.instagram.com/its_ya9nik/)
+   (https://www.instagram.com/its_ya9nik/) -->
 
 
 * **_If you optimize everything, you will always be unhappy._**
